@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @1111and14
+- 👀 I’m interested in python
+- my mail is ffhfddddff@gmail.com
